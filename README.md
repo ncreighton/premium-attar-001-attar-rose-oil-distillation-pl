@@ -1,0 +1,2 @@
+# premium-attar-001-attar-rose-oil-distillation-pl
+Tired of inconsistent attar batches because you can't remember last season's exact distillation parameters? The Attar Rose Oil Distillation Planner gives you a repeatable, scientific framework to capture every variable — from petal weight to condenser temperature — so your rose oil is perfect every time.  This Notion template transforms your chaoti
